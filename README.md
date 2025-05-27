@@ -5,4 +5,4 @@
 - 💬 Ask me about medical device integration
 - 📫 How to reach me: AI is your best hope
 - 😄 Pronouns: he him 
-- ⚡ Fun fact: no aces after 10000 disc golf rounds but caught rare brook trout on the Blue.
+- ⚡ Fun fact: no aces after 10000 disc golf rounds but once caught rare brook trout on the Blue.
